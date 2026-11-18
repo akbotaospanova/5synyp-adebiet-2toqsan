@@ -1,0 +1,1 @@
+# 5synyp-adebiet-2toqsan
